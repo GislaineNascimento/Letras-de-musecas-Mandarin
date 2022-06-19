@@ -2,5 +2,5 @@
 aqui tem algumas letras que usei para meu estudo de Chinês
 
 
-Lins utilizaado
+Lins utilizado
 [lyric pinyn] (https://lyricspinyin.com/)
