@@ -1,4 +1,4 @@
-# Letras-de-musicas-Mandarin
+# Letras-Musicas-Mandarin
 aqui tem algumas letras que usei para meu estudo de Chinês
 
 
